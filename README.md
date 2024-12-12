@@ -1,8 +1,8 @@
 51吃瓜网-17吃瓜黑料官网-黑料吃瓜网-第一吃瓜网-麻豆吃瓜网-深度曝光51事件独家内幕
 ----
-[🔞🌏点击进入官网【cg588.com】🌏🔞](https://AVapp2.github.io/cg66/)
+[🔞🌏点击进入官网【cg588.com】🌏🔞](https://AVapp2.github.io/51chigua/)
 ----
-[🔞🌏点击进入官网【cg589.com】🌏🔞](https://AVapp2.github.io/cg66/)
+[🔞🌏点击进入官网【cg589.com】🌏🔞](https://AVapp2.github.io/51chigua/)
 ----
 <h3>【瓜棚团】更新时间：2024年12月11日</h3>
 
